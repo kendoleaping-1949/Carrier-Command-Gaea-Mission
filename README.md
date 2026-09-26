@@ -223,4 +223,4 @@ Carrier Command: Gaea Mission is offered as a full free version with all feature
 **Don't miss out on the chance to lead your troops to victory! Download Carrier Command: Gaea Mission now and experience the action!**
 
 ---
-**Last updated:** 2026-09-26 17:30:50 UTC
+**Last updated:** 2026-09-26 20:26:21 UTC
